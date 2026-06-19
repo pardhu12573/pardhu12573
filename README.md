@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pardhu12573
-- 📫 How to reach me ... Can reach me on
+- 📫 Can reach me on
 - Gmail: bpsv2006@gmail.com
 - LinkedIn: www.linkedin.com/in/pardha-saradhi-boyapati-6790882ba
 - 😄 Pronouns: ... He/Him
